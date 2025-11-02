@@ -1,0 +1,7 @@
+Nicklas Hadron is a historical character in [[Tomorrow's Reflection]].
+
+# Profile
+Nicklas Hadron was a member of the [[source-folder/Completed Works/Characters/Groups/Notable Groups/Hadron Family]]. Appointed by [[Gaia Roths]], he originally in charge of the first iteration of the [[Experimental Zone]], he later managed the entire [[Hadron]] region as well as [[Hadron City]]. He was rather wealthy, having a monopoly over many rare and valuable minerals in Drasil. 
+
+# History
+During the founding of the [[Experimental Zone]], Nicklas was a politician from a political family. Not much is known about his politics before the founding of the Experimental Zone, but his views did not fully align with Gaia's, which is why he was appointed. His hopes for his region were to turn it into a fully fledged independent country, while maintaining his alliance with the [[Collective Capital]]. He focused his efforts on gaining power in both resources and commerce to help grow his nation. Eventually when the Experimental Zone split into three divisions, he used his wealth and influence to maintain power over two of the regions, [[Hadron]] and [[Kariwa]]. He would die soon after, passing his legacy onto his family.

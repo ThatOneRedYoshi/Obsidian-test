@@ -1,0 +1,7 @@
+This document is about Scarlet Lavaux, [[Maria|Maria Lavaux's]] brother. You may be looking for the puppet [[Scarlet]].
+
+# Profile
+Scarlet Lavaux is [[Maria|Maria Lavaux's]] deceased older brother, first appearing in [[Emptiness of the Lake (Maria Chapter)|Emptiness of the Lake]] as a supporting character. Scarlet was somewhat outgoing, though less so than his sister, he seemed to be a little more reserved, often opting to work in private on inventions and tinkering with gadgets and scrap he found. Scarlet spent a lot of time caring for his younger sister, often taking her out for walks and letting her mess with his creations, even creating things for her like when he created her a makeshift guitar from scrap. Scarlet seemed to want to invent something capable of helping their parents financial issues, but most of his inventions did not seem to function correctly, often breaking apart.
+
+# History
+Scarlet's upbringing seemed to have been a little different to Maria's based on their differences in personality, he seemed more aware of their situation than Maria and did his best to shield her from the harsher sides of reality. He spent a great deal of his time making inventions from scraps and studying with what little he could. On the day [[Stheno Roths]] attacked [[Moonview]], he felt powerless and was unable to do much to help save his family. He ultimately died through impalement, his death traumatizing Maria. 

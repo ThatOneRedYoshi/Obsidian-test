@@ -1,0 +1,3 @@
+The Lotu Ni Matanisiga is a location in [[Koro' Ni Vale]].
+
+While all Sirens within [[Koro' Ni Vale]] pray to the [[Valetabu Misitiki]], only the mot devout followers come to the Lotu Ni Matanisiga for worship. Found at the lowest point of of the city, the Lotu Ni Matanisiga is a tall, red, monolith-shaped building made from [[source-folder/Completed Works/World/Nature/Natural Resources/Plants/Calmea]], it has multiple layers and acts as a place of prayer for anyone of the [[Icavac]] religious group. Prayer here is pretty standard, everyone is expected to go to one of the many layers and rest on their tail before praying up towards the water surface, prayer is held right when the sun is at the centre of the sky.

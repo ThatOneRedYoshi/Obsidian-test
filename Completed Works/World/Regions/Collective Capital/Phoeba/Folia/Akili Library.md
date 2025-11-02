@@ -1,0 +1,3 @@
+The Akili Library is a location in [[Folia]].
+
+The foundation of Folia is a large hexagon shaped building at the very middle of the city called the Akili Library. Akili Library acts as the heart of Folia, connecting every path throughout the city to the library as an end point. The building itself almost acts as its own indoor city, housing multiple smaller libraries with focused topics for each one. As a stronghold of all the world's known knowledge, it holds over twenty-three million books and an estimated one-hundred million research papers and documents. Every individual entry into the Akili Library must be approved by a member of the [[Phoeba]] region [[Council of Phoeba|council]], whose homes are all located within the Akili Library.

@@ -1,0 +1,8 @@
+## **City**
+Chilac’s capital city of Lampsi is known as the capital of art. The city is full of rounded buildings and unique architecture, no two buildings look the same but every building is complex with many layers of depth in their design. Lampsi is built from a material [[Effysium]], a material which is made by infusing magic into liquidised marble, then solidifying it creating a unique marble-like material, which shines in many colours. This material has a high level of resistance and can resist heavy impacts. Lampsi is also covered in many coloured lights that light up during the night. In the dark, the city shines like glitter on a blackboard from a distance. The city’s locals are typically all artistic in some way, and many districts within the city are dedicated to the many forms of art practised by the people. The city has a surplus of landmarks across its many districts, such as museums, art galleries etc. The most notable landmark in the city is [[Metam Theatre]], the main body of which is a performing art theatre where many forms of art get shown off and performed regularly to celebrate the city's culture. The upper part of the building is where Chilac’s present leader resides.
+****
+## **History**
+Lampsi does not have an extensive history, as it was built after the end of the war, the ideology behind it being to create the most beautiful city. Located in the eastern state of Thesaloni, Lampsi was built as a harbour for art. The project was directed by [[Gordenna Brilho]] and was intended as his magnum opus, it took twenty five years to complete and required the combined efforts of almost all of those who would eventually become the city's inhabitants.
+****
+## See Also:
+- [[Metam Theatre]]

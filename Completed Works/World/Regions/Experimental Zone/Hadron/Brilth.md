@@ -1,0 +1,2 @@
+Brilth is one of the cities in Hadron. Originally ran by [[source-folder/Completed Works/Characters/Side Characters/Elena Hadron]] and now ran by her granddaughter, Brilth is currently being held in secret hostage by the [[source-folder/Completed Works/Characters/Groups/Notable Groups/Lopnur Family]]. 
+Brilth appears to have once had a large hold of [[Resources]] in [[Hadron]], but eventually lost them with the Lopnur's seized control.

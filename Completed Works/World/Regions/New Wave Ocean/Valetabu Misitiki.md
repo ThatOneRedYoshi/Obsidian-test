@@ -1,0 +1,3 @@
+The Valetabu Misitiki is a location in [[Koro' Ni Vale]].
+
+Held at the very core of Koro' Ni Vale, Valetabu Misitiki is a large vertical shrine made from countless bowl-shaped tops and small pillars each acting as independent smaller shrines that hold inside one larger shrine. No living person has ever seen the inside of the Valetabu Misitiki and the only thing known about it is that it holds the [[Uasivi Vatu]] . The building is made of various different colours all in a repeating pattern. Each smaller shrine is used to hold offerings from the people of [[Koro' Ni Vale]]. The people are Koro' Ni Vale pray to the Valetabu Misitiki for fortune and prosper.

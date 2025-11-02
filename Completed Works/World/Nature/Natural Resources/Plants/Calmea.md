@@ -1,0 +1,4 @@
+Calmea is an algae based [[Resources|plant]] that grows around coral. With [[Magic]] imbuing through the roots, its outer layer hardened to a rock-like material that when picked from the root, becomes soft and light. Calmea has a high magic conductivity, meaning that in larger chunks it hardened. Calmea can be stuck together like magnets, and overtime will gradually regrow into itself, thus being able to create large solid resources that is easy to build with and transport.
+
+Calmea was first discovered by the [[Sirens]] in 0NE. It originated from the [[Uasivi Vatu]] seeping great levels of magic into the ocean, causing much of the environment to change and adapt. Calmea was later discovered by the people of the [[Harmonic Sector]], who used it as a foundation resource in many of their buildings.
+

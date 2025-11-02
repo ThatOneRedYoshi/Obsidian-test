@@ -1,0 +1,3 @@
+The Church of the All Seeing is a location in [[Phulax]].
+
+At the northernmost point of the city, lies a large, monolid-shaped building constructed of Vlepounite, the roof also has a white-tinted glass dome. The interior of the building has two segments, the outer monolid is the location where conventional prayer and respect to Prometheus Roths is held. The inner dome is where Vlepoun’s all seeing eye is preserved. While there is nothing unconventional about the practices of prayer from the general public, the more important figures in the city, such as Tyflos and his assistants, often pray to the All Seeing Eye to gain information and blessings from it.

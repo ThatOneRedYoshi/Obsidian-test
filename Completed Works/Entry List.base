@@ -1,0 +1,8 @@
+filters:
+  or:
+    - file.inFolder("Incomplete Documents")
+    - file.inFolder("Completed Works")
+views:
+  - type: cards
+    name: Table
+    sort: []

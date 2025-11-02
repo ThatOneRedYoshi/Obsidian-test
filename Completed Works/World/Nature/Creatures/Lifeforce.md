@@ -1,0 +1,3 @@
+Lifeforce is a concept in founded by Kara Xavier.
+
+Lifeforce is described as the Phenomena which binds together person's soul and physical body. When lifeforce is depleted, a person is considered completely dead. After a persons physical body dies, their lifeforce can linger on with their soul, which creates a [[Spirits|spirit]]. Beings without Lifeforce do not have a physical attachment to their self, and can be reborn in different incarnations.

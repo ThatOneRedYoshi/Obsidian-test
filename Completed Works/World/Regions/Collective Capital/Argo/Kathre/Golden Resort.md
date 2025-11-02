@@ -1,0 +1,3 @@
+The Golden Resort is a location in [[Kathre]].
+
+Despite its lucrative sounding name, the Golden Resort is a corrupt, underground scene full of casinos and private clubs. Though it operates outside of the law, due to the sheer number of powerful figures who visit this place, few dare to attempt to maintain the law here. This place has not given the [[To Be Added Documents/Characters/Groups/Lead Factions/Roths Family|Roths]] any cause for concern, as such, they have elected to ignore it since its inception. Many rumours suggest that this place has a history of human trafficking amongst the more rich and wealthy.
